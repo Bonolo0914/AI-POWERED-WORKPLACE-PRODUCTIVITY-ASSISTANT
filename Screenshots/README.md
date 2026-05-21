@@ -1,1 +1,1 @@
-my prject screenshots
+my project screenshots
